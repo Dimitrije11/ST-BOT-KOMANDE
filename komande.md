@@ -1,4 +1,4 @@
-☆ ST BOT ★ KOMANDE
+CoolBalkan♫★ 
 ====================
 
 X=određeni broj
