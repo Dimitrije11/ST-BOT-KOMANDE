@@ -1,4 +1,4 @@
-☆ ST BOT ★ KOMANDE
+CoolBot
 ====================
 
 | plug.dj:https://plug.dj/st-army-elite |
